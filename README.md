@@ -1,1 +1,1 @@
-# wireless earbuds
+# budget wireless earbuds
